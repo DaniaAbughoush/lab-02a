@@ -1,5 +1,5 @@
 # Lab 02a
-I am Dania Abu ghoush and I am industrial engineer looking to improvr my self throuh this course
+I am Dania Abu ghoush and I am industrial engineer looking to improvr my self throug this course
 
 ## Groth Mindeset
 is a topic every body talks about these days its an aword use to descibe that we should keep learning ,facing fears,and not be fixed mind 
